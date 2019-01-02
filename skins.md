@@ -3,8 +3,8 @@
 
 Click on the skin name to download.
 
-# [hey dt purple]()
-![](link broke af)
+# [hey dt purple](https://puu.sh/Cqn5a/301ad0368c.osk)
+![](https://osu.ppy.sh/ss/12427144)
 
 # [hey dt (goodnight)](https://urwomb.s-ul.eu/8bxnmIYn)
 ![](https://osu.ppy.sh/ss/12427102)
