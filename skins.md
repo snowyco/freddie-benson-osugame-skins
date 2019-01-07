@@ -4,7 +4,7 @@
 Click on the skin name to download.
 
 # [hey dt mathyu blue](https://cdn.discordapp.com/attachments/422089029178359809/531758454331801600/mathyuheydt.osk)
-![](https://osu.ppy.sh/ss/12427456)
+![](https://i.imgur.com/ra6C0W1.png)
 
 # [aireu DT](https://cdn.discordapp.com/attachments/502936270436171806/529872031739674644/-_aireudt.osk)
 ![](https://osu.ppy.sh/ss/12427456)
